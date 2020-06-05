@@ -4,4 +4,4 @@ Part I  In ocean navigation, locations are measured in degrees and minutes of la
 
  I am giving these codes free
  before going to my code try yourself.
- Zip password-dhanushka
+ Zip password-Send me and an email technohub10000@gmail.com .Then i will send you password
